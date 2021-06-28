@@ -1,1 +1,0 @@
-# jairovaladez.github.io
